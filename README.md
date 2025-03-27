@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 # Hi, I'm Laura
-I bring calm focus, curiosity, and a strong sense of follow-through to everything I do.  
+I approach everything I do with focus, curiosity, and a strong commitment to follow-through.  
 My foundation began with 6 years of military service as a data processor,
 where I learned discipline, precision, and how to handle complex systems under pressure.  
 Since then, I graduated from UC Davis with a degree in Environmental Studies
